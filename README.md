@@ -1,0 +1,2 @@
+# premium-native-bead-001-native-american-beadwork-lazy
+Tired of losing track of your lazy stitch rows and color changes mid-project? This Notion template keeps every pattern, row, and bead color organized so you can focus on the art.  The Native American Beadwork Lazy Stitch Pattern Manager is the only Notion template built specifically for lazy stitch beadwork. It solves the pain of scattered notes, f
